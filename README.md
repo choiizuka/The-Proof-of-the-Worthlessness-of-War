@@ -1,3 +1,5 @@
+[← Back to Reports|レポート一覧に戻る](https://github.com/choiizuka/reports-index)
+
 # The-Proof-of-the-Worthlessness-of-War
 The Proof of the Worthlessness of War : 戦争の無価値の証明
 
